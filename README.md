@@ -4,7 +4,7 @@ _By James & Jess of Gardeners Cottage (2025-06-13)_
 
 ## Background
 
-When we bought Gardeners Cottage in 2020, the parking space in front of The Coach House (Space A) was in the deeds to the property.
+When we bought Gardeners Cottage, Chelmsford Mews in 2020, the parking space in front of The Coach House (Space A) was in the deeds to the property.
 
 Upon moving in, it became clear that Space A is too small to be a parking space, as it restricts access through the arch. Because of this, the management company at the time gave us permission to use the second space on the right after you head through the arch (Space B).
 
