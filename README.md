@@ -12,7 +12,7 @@ We’ve been parking in Space B ever since, without issue.
 
 It’s recently come to our attention that Space B has now been allocated to The Coach House, which means we no longer have access to it.
 
-As a result, we’ve had no choice but to go back to using Space A, even though we’re fully aware it causes an obstruction. We’re doing this out of necessity, not choice, and wanted to explain the situation clearly so everyone is aware.
+As a result, we’ve had no choice but to go back to using Space A, even though we’re fully aware it causes an obstruction. We’re doing this out of necessity and wanted to explain the situation clearly so everyone is aware.
 
 We are actively trying to resolve this, but in the meantime we appreciate everyone’s understanding.
 
@@ -25,3 +25,12 @@ I'll share any updates here.
 ## Getting In Touch
 
 You can email me: [j\_d\_baker@hotmail.com](mailto:j_d_baker@hotmail.com?subject=Gardeners%20Cottage%20Parking%20Space)
+
+---
+
+## Timeline
+
+### 2025-06-13
+
+- This page was made
+- [Message sent to Woodstone1](/communications/2025-06-13-woodstone1-contact-us.md)
