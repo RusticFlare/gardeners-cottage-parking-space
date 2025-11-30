@@ -73,8 +73,8 @@ On 23 Nov 2025, at 19:07, mark thompson <mark@woodstone1.com> wrote:
 
 On 23 Nov 2025, at 20:09, me@jamesbaker.uk wrote:
 
-﻿> Hi Mark,
->
+> Hi Mark,
+> 
 > As I’m sure you can understand, the current parking situation has been very stressful for us. We know this isn’t something you caused, but we do need your help in finding a solution.
 >
 > Could you please confirm whether the allocation of parking spaces now falls under your responsibility as the developer and management company? We’ve been trying to resolve this for several months, as we want to ensure we have a designated space that doesn’t obstruct site works or affect other residents.
