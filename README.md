@@ -1,6 +1,6 @@
 # Gardeners Cottage Parking Space
 
-_By James & Jess of Gardeners Cottage, Chelmsford Mews (2025-06-13)_
+_By James & Jess of Gardeners Cottage, Chelmsford Mews_
 
 ## Background
 
