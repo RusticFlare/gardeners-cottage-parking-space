@@ -24,7 +24,7 @@ I'll share any updates here.
 
 ## Getting In Touch
 
-You can email me: [j\_d\_baker@hotmail.com](mailto:j_d_baker@hotmail.com?subject=Gardeners%20Cottage%20Parking%20Space)
+You can email me: [me@jamesbaker.uk](mailto:me@jamesbaker.uk?subject=Gardeners%20Cottage%20Parking%20Space)
 
 ---
 
